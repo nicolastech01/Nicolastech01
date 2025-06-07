@@ -8,7 +8,7 @@ Meu nome é nome Nicolas
 
 ### Você pode entrar em contato comigo 📧
 
-00001119751275sp@al.educaacao.sp.gov.br
+00001119751275sp@al.educacao.sp.gov.br
 
 @Nicolastech01
 
